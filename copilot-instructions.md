@@ -1,0 +1,1 @@
+/Users/daidinh/Trainning/Shopify/my-dawn-clone/AGENTS.md
